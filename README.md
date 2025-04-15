@@ -1,2 +1,2 @@
-# Ryns-Seblak
-Seblak Mantul
+# Ryn's-Seblak
+
